@@ -7,8 +7,6 @@ Software Engineer @ Zoho Corporation
 - 👯 I’m looking to collaborate on ML/AI
 - 🤔 I’m looking for help with Placements in FAANG
 - 💬 Ask me about Tech
-- 📫 How to reach me :
-<br /> [<img src="https://x.com/Saru30840482" />](https://x.com/Saru30840482) [<img src="https://www.linkedin.com/in/im-sarusan-038896334/" />](https://www.linkedin.com/in/im-sarusan-038896334/)
 - 😄 Pronouns: Techie
 - ⚡ Fun fact: I know Japanese.
 
